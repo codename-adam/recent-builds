@@ -7,7 +7,7 @@
 ### Ridgewood
 (http://www.ridgewoodcc.com/)
 
- ### Coming Soon
+### Coming Soon
 - Detroit Yacht Club
 - The Old Collier Club
 - The Club at UC Santa Barbara
